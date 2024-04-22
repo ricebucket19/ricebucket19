@@ -1,5 +1,5 @@
 - 👋 Hi, My name is Mina Shin. I am currently a fourth-year undergraduate, who is pursuing a Business B.S. Degree at the University of California, Riverside.
-- 👀 I’m interested in binge watching shows, music, reading, baking/cooking, spending time with my dog, friends, and family.
+- 👀 I’m interested in binge watching shows, music, reading, baking/cooking, spending time with my dog, friends, and family. I like to collect figures and build things like Legos. 
 - 🌱 I like to try and learn new things.
 - 📫 You can reach me at mina.shin19@gmail.com
 - 😄 Pronouns: She/Her/Hers
